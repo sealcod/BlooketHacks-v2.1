@@ -1,4 +1,4 @@
-# BlooketHacks-v2.1
+# BlooketHacks
 the BEST blooket hacks for FREE!
 
 
